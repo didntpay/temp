@@ -1,6 +1,6 @@
 # Personal Manifesto
 
-_Here are eight ideas that I consider to be important. I use them every day to guide my decision-making process and my attitude towards the world, people, and life._  
+I encountered the leadership principle from Amazon, and I think it is a very good standard to follow. It keeps me motivational and humble about myself.
 
 ## Learn and Be Curious
 Learning should be _continuous_, _perpetual_, and _spontaneous_. For me, It is important to never stop learning and always seek ways to improve myself. I am also curious about new possibilities and act to explore them.
